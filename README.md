@@ -5,7 +5,6 @@
 
 
 - Contact me :
-✉︎ - tamerlan.as@proton.me 
+✉︎ - tamerlan.as@proton.me
 Discord - tam.ik
-
 Thanks!
